@@ -22,3 +22,7 @@ metaverse
 https://docs.google.com/presentation/d/1qkYgcItBN6942mGRoE06NoSMGu8jfEA5jfKS6hNbfYc/edit?usp=sharing
 
 https://allo.io/s/x8VoK0cxQ6p9Io3MC2xSIHy7oRzBKx8ZClOiBYsgZdMQMGGeAoomd9iTs6ZG1Jux
+
+천안상고
+https://allo.io/s/7gunCmW5rTvkyBRsUeHsX5SyTBeCI8bny2M3uTJuwNdvb8K7HuPCnDB0JYv31iLK
+

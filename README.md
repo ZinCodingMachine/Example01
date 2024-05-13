@@ -44,4 +44,6 @@ https://allo.io/s/OiYaNVICPTjKYeuuPTNoiXZNSMiTo8ejY3LFNIKZxloOyptHfwewQVxG81EszF
 
 https://zinzin.atlassian.net/
 
-https://art.wordrow.kr/#content
+http://mebiusbox.github.io/contents/EffectTextureMaker/
+
+https://youtu.be/2De-Bp262eE?list=PL_fLClg6B1DST14PZAUkl8AwpAjppWPzP

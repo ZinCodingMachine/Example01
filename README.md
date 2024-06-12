@@ -51,3 +51,5 @@ https://youtu.be/POmdTfGs5h8
 https://youtu.be/2De-Bp262eE?list=PL_fLClg6B1DST14PZAUkl8AwpAjppWPzP
 
 https://www.geogebra.org/graphing/ab3ce4dx
+
+https://docs.google.com/presentation/d/1qnfHOr0GdlXbPywvPD-HMuhVwx7NDoqEIjjy5kQn1Ek/edit?usp=sharing

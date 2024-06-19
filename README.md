@@ -57,3 +57,7 @@ https://docs.google.com/presentation/d/1qnfHOr0GdlXbPywvPD-HMuhVwx7NDoqEIjjy5kQn
 https://docs.google.com/presentation/d/1nVBeVu4PnFUCP_DzA5r3Nt_N1vGTiuvtpnUP1Q7jXTs/edit?usp=sharing
 
 https://drive.google.com/file/d/1zpe1u7kekHxFCsYSVYRwd60Y4qF4TVWn/view?usp=sharing
+
+https://www.printshop.co.kr/goods/sheet/brochure.html
+
+https://www.canva.com/ko_kr/reports/templates/

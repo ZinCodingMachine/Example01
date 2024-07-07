@@ -34,9 +34,10 @@ https://allo.io/s/x8VoK0cxQ6p9Io3MC2xSIHy7oRzBKx8ZClOiBYsgZdMQMGGeAoomd9iTs6ZG1J
 
 https://allo.io/s/7gunCmW5rTvkyBRsUeHsX5SyTBeCI8bny2M3uTJuwNdvb8K7HuPCnDB0JYv31iLK
 
-https://drive.google.com/drive/folders/1dRSVTy-9KP6Lbf_ZJOp9T2n5F6YkXqGz?usp=sharing
-
 https://docs.google.com/spreadsheets/d/1--fUUza6fCPxLsIkjgySuP7gkUi0fuOzL4RO3SQqdBg/edit?usp=sharing
+
+https://docs.google.com/spreadsheets/d/1GmUpW6tcnIhzqD0t3cAW1QmyKxQ-kHDd/edit?usp=sharing&ouid=100278974750631284091&rtpof=true&sd=true
+
 
 수원공고
 

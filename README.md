@@ -61,7 +61,7 @@ https://docs.google.com/presentation/d/1qnfHOr0GdlXbPywvPD-HMuhVwx7NDoqEIjjy5kQn
 
 https://docs.google.com/presentation/d/1nVBeVu4PnFUCP_DzA5r3Nt_N1vGTiuvtpnUP1Q7jXTs/edit?usp=sharing
 
-https://drive.google.com/file/d/1zpe1u7kekHxFCsYSVYRwd60Y4qF4TVWn/view?usp=sharing
+https://docs.google.com/presentation/d/1mZhRgFx8xneigN_Hi1-89evk6J5hsy7l_xOzzgsRD9I/edit?usp=sharing
 
 https://www.printshop.co.kr/goods/sheet/brochure.html
 

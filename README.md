@@ -66,3 +66,5 @@ https://docs.google.com/presentation/d/1mZhRgFx8xneigN_Hi1-89evk6J5hsy7l_xOzzgsR
 https://www.printshop.co.kr/goods/sheet/brochure.html
 
 https://www.canva.com/ko_kr/reports/templates/
+
+https://padlet.com/zinlaoshi/padlet-vjgsdeoyk95msedq

@@ -8,8 +8,6 @@ c++
 
 https://docs.google.com/presentation/d/1jVMVZD-pn6qPcV0wYJa7jKc0djoVfObCw9VXeIjUzrQ/edit?usp=sharing
 
-https://allo.io/s/subL6jEZQQnBNvXGB4zloDTBn2TAXJkFDbfWFp1O879wmnOamZOO3XRvamTfiPFJ
-
 sql
 
 https://docs.google.com/presentation/d/114335nGYU4aiBuM_23JUhzw2nmDpOCLzGLBIi2iqbx0/edit?usp=sharing
@@ -36,10 +34,9 @@ https://youtu.be/2De-Bp262eE?list=PL_fLClg6B1DST14PZAUkl8AwpAjppWPzP
 
 https://www.geogebra.org/graphing/ab3ce4dx
 
-천안상고
+
+https://allo.io/s/subL6jEZQQnBNvXGB4zloDTBn2TAXJkFDbfWFp1O879wmnOamZOO3XRvamTfiPFJ
 
 https://allo.io/s/7gunCmW5rTvkyBRsUeHsX5SyTBeCI8bny2M3uTJuwNdvb8K7HuPCnDB0JYv31iLK
-
-수원공고
 
 https://allo.io/s/OiYaNVICPTjKYeuuPTNoiXZNSMiTo8ejY3LFNIKZxloOyptHfwewQVxG81EszFc7

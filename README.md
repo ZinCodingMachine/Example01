@@ -40,3 +40,5 @@ https://allo.io/s/subL6jEZQQnBNvXGB4zloDTBn2TAXJkFDbfWFp1O879wmnOamZOO3XRvamTfiP
 https://allo.io/s/7gunCmW5rTvkyBRsUeHsX5SyTBeCI8bny2M3uTJuwNdvb8K7HuPCnDB0JYv31iLK
 
 https://allo.io/s/OiYaNVICPTjKYeuuPTNoiXZNSMiTo8ejY3LFNIKZxloOyptHfwewQVxG81EszFc7
+
+https://padlet.com/zinlaoshi/padlet-4as0w2xdlu16k0j6

@@ -20,9 +20,7 @@ c#
 
 https://docs.google.com/presentation/d/1x9GfhuMd68GvRZG7kSrTpQJp0S1y6mQGfovw_ElmSwE/edit?usp=sharing
 
-https://docs.google.com/document/d/1VVqqrON5OdipJQd1kjkXyCiRaK9nTFB4zzXYIV-uLaE/edit
-
-https://docs.google.com/forms/d/e/1FAIpQLSfFi5MUiHWMnKj0rJxq0auPQL6tGRGeYvzXAIguwrkFKPdn7w/viewform?usp=sf_link
+https://forms.gle/9yrnkaK46q2w7rED9
 
 metaverse
 
@@ -30,41 +28,18 @@ https://docs.google.com/presentation/d/1qkYgcItBN6942mGRoE06NoSMGu8jfEA5jfKS6hNb
 
 https://allo.io/s/x8VoK0cxQ6p9Io3MC2xSIHy7oRzBKx8ZClOiBYsgZdMQMGGeAoomd9iTs6ZG1Jux
 
+파티클
+
+https://youtu.be/2De-Bp262eE?list=PL_fLClg6B1DST14PZAUkl8AwpAjppWPzP
+
+스플라인 그래프 계산기
+
+https://www.geogebra.org/graphing/ab3ce4dx
+
 천안상고
 
 https://allo.io/s/7gunCmW5rTvkyBRsUeHsX5SyTBeCI8bny2M3uTJuwNdvb8K7HuPCnDB0JYv31iLK
 
-https://docs.google.com/spreadsheets/d/1--fUUza6fCPxLsIkjgySuP7gkUi0fuOzL4RO3SQqdBg/edit?usp=sharing
-
-https://docs.google.com/spreadsheets/d/1GmUpW6tcnIhzqD0t3cAW1QmyKxQ-kHDd/edit?usp=sharing&ouid=100278974750631284091&rtpof=true&sd=true
-
-
 수원공고
 
-https://forms.gle/9yrnkaK46q2w7rED9
-
-https://forms.gle/UbXcb6whTvSQ64vp8
-
 https://allo.io/s/OiYaNVICPTjKYeuuPTNoiXZNSMiTo8ejY3LFNIKZxloOyptHfwewQVxG81EszFc7
-
-https://zinzin.atlassian.net/
-
-http://mebiusbox.github.io/contents/EffectTextureMaker/
-
-https://youtu.be/POmdTfGs5h8
-
-https://youtu.be/2De-Bp262eE?list=PL_fLClg6B1DST14PZAUkl8AwpAjppWPzP
-
-https://www.geogebra.org/graphing/ab3ce4dx
-
-https://docs.google.com/presentation/d/1qnfHOr0GdlXbPywvPD-HMuhVwx7NDoqEIjjy5kQn1Ek/edit?usp=sharing
-
-https://docs.google.com/presentation/d/1nVBeVu4PnFUCP_DzA5r3Nt_N1vGTiuvtpnUP1Q7jXTs/edit?usp=sharing
-
-https://docs.google.com/presentation/d/1mZhRgFx8xneigN_Hi1-89evk6J5hsy7l_xOzzgsRD9I/edit?usp=sharing
-
-https://www.printshop.co.kr/goods/sheet/brochure.html
-
-https://www.canva.com/ko_kr/reports/templates/
-
-https://padlet.com/zinlaoshi/padlet-vjgsdeoyk95msedq

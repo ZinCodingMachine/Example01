@@ -47,8 +47,13 @@ https://allo.io/s/7gunCmW5rTvkyBRsUeHsX5SyTBeCI8bny2M3uTJuwNdvb8K7HuPCnDB0JYv31i
 
 https://allo.io/s/OiYaNVICPTjKYeuuPTNoiXZNSMiTo8ejY3LFNIKZxloOyptHfwewQVxG81EszFc7
 
+경진 23
 https://padlet.com/zinlaoshi/padlet-4as0w2xdlu16k0j6
 
+전국대회
 https://padlet.com/zinlaoshi/padlet-a873atdbl25qvlpq
+
+경진 24
+https://padlet.com/zinlaoshi/24-55efiqq6okp7frn1
 
 

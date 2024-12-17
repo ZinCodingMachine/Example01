@@ -54,10 +54,12 @@ https://padlet.com/zinlaoshi/padlet-4as0w2xdlu16k0j6
 https://padlet.com/zinlaoshi/padlet-a873atdbl25qvlpq
 
 경진 24
-https://padlet.com/Diycs/1-ggte81ln1pqzklj5
 https://padlet.com/zinlaoshi/24-55efiqq6okp7frn1
 
 천안 24
+
+https://padlet.com/Diycs/1-ggte81ln1pqzklj5
+
 https://padlet.com/yakollacode1/24-9fzyh29zymvyr5hf
 
 

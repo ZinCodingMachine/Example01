@@ -64,4 +64,6 @@ https://padlet.com/yakollacode1/24-9fzyh29zymvyr5hf
 
 https://docs.google.com/spreadsheets/d/1Sj3RQU4BJZZqprUCX7-OM1-CXfr68tvz/edit?usp=sharing&ouid=100278974750631284091&rtpof=true&sd=true
 
+https://docs.google.com/presentation/d/1lDrzGkSpyJBhUm_QBs3PRoF6bdJqq92pnPSvPSa8q3g/edit?usp=sharing
+
 

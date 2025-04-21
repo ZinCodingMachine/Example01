@@ -4,6 +4,8 @@
 
 https://docs.google.com/presentation/d/1qqcNqC5Je7JY49WnEkXVbJOWv1ukzjepneznPnY5HpY/edit?usp=sharing
 
+https://docs.google.com/presentation/d/1kO05-FehlNey2x8C1RJTDBhn7eo52H_svk4s1Uy9RCk/edit?usp=sharing
+
 c++
 
 https://docs.google.com/presentation/d/1jVMVZD-pn6qPcV0wYJa7jKc0djoVfObCw9VXeIjUzrQ/edit?usp=sharing

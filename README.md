@@ -36,6 +36,8 @@ https://allo.io/s/x8VoK0cxQ6p9Io3MC2xSIHy7oRzBKx8ZClOiBYsgZdMQMGGeAoomd9iTs6ZG1J
 
 https://padlet.com/zinlaoshi/2025-38b1ek4ab17h6zxl
 
+https://docs.google.com/presentation/d/1bfeTGQL4gFKBMxXC5WTlkVa0roh0RY2A0Yhw5VRG75U/edit?usp=sharing
+
 파티클
 
 https://youtu.be/2De-Bp262eE?list=PL_fLClg6B1DST14PZAUkl8AwpAjppWPzP
